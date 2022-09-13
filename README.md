@@ -1,4 +1,4 @@
-### Olá,
+### Hey there,
 <!-- 🤙 -->
 
 <div align="center">
